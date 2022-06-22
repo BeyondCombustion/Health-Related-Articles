@@ -1,3 +1,9 @@
+#### Want to contribute to BeyondCombustion?
+
+[Click here for info on how you can help contribute to BeyondCombustion.net!](https://BeyondCombustion.net/How-To-Contribute/)
+
+---
+
 [Medicinal Cannabis: In Vitro Validation of Vaporizers for the Smoke-Free Inhalation of Cannabis](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0147286)
 
 [Experiences of Marijuana-Vaporizer Users](https://www.tandfonline.com/doi/full/10.1080/08897077.2013.823902?scroll=top&needAccess=true)
